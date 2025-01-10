@@ -8,6 +8,13 @@ CSGORoll is a premier platform for gaming enthusiasts and skin traders, offering
 *   **HELLANEW:** Trigger this code as a new player to unlock **3 free cases** and a **5% deposit bonus** through suggested payment options.
 *   **GAMBLE100:** Redeem this code to get a **5% deposit bonus** and **3 free cases** for added benefits.
 
+## CSGORoll Promo Codes 2025
+| CSGORoll Offer | Promo Code    | Details    |
+| :---:   | :---: | :---: |
+| 🎁 CSGORoll Welcome Offer | HELLA3   | 3 Free Cases & Get +5% Deposit Bonus   |
+| 💸 CSGORoll Free Cases | HELGO   | Get 3 Free Cases   |
+| 🤑 CSGORoll Free Coins | HELLANEW   | Receive 10+ CSGORoll coins   |
+
 ![CSGORoll_Promo_Codes_2025](https://github.com/user-attachments/assets/3c34934a-10f2-4047-9abc-69e72e3aef8f)
 
 ## What is the CSGORoll Promo Code?
